@@ -23,4 +23,5 @@ ICP-8 Video Link : https://drive.google.com/file/d/1Ki9BuziRunw1YyCEUwXFAKOdWHnD
 
 ICP-9 Video Link : https://drive.google.com/file/d/1pA8bLRS0_e5yq1mI-_ra6Pu0s-yJ9A2e/view?usp=share_link
 
+ICP-10 Video Link : https://drive.google.com/file/d/1oToJp1tLRCaoPwTNgWxeXHkdWRmOTkH9/view?usp=share_link
 
